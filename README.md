@@ -1,2 +1,3 @@
 # LetsPractice
-lets practice some thing new
+let's practice something new
+Hye my Dear Lets Practice Something new with great Energy
